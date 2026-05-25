@@ -1,1 +1,0 @@
-# actividad-semana-1
